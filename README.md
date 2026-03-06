@@ -12,7 +12,7 @@ Figma Link:
 https://www.figma.com/design/xvNujjBGTpXfThL9akFwOK/Wusul-Project?node-id=0-1&t=zjVU4SxIVyWDM60Z-1
 
 Whatsapp group for team:
-Follow this link to join my WhatsApp group: https://chat.whatsapp.com/HCcG18YjUAA4pr7H41NniF?mode=gi_t
+https://chat.whatsapp.com/HCcG18YjUAA4pr7H41NniF?mode=gi_t
 
 
 
